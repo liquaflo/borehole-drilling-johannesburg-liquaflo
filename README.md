@@ -82,4 +82,5 @@ With utility costs rising and supply issues growing, **owning your water source 
 
 > ✅ Licensed. ✅ Insured. ✅ Trusted by Gauteng’s homeowners & farmers.
 
-👉 **[Request a Free Site Assessment Now](mailto:info@liquaflo.co.za?subject=Free%20Borehole%20Assessment%20Request)**  
+👉 **[Request a Free Site Assessment Now](https://liquaflo.co.za/pages/quotation-for-borehole-drilling)**
+
